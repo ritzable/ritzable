@@ -1,8 +1,8 @@
 # hi, im risble.
 
-i make and code stuff here. also im a trans idiot so she/her lmao
+i make and code stuff here. also im a trans idiot so she/her lmao :]
 
-also im a fnf fan, so expect MOSTLY fnf stuff.
+also ALSO im a fnf fan, so expect MOSTLY fnf stuff.
 
 ![har har harr har hr arh arh arh har har](https://user-images.githubusercontent.com/78597960/157259872-4c8ad5e5-e682-4577-88fc-064ba688430a.png)
 
