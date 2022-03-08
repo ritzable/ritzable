@@ -1,4 +1,4 @@
-# hi, im risble.
+# hi, im risible.
 
 i make and code stuff here. also im a trans idiot so she/her lmao :]
 
