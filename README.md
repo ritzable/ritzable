@@ -1,11 +1,11 @@
-# i love lean
-hello i am actually just makign fnf thjings and other stuff on ocaeyon on this account so lik yeah
+# hi, im risble.
 
-im like trans so like she / her????????? oplase???????      if not i will murder oyu?????????? / j ????????
+i make and code stuff here. also im a trans idiot so she/her lmao
 
-i also like fn boot bad i love that mod is so cool mod and uh mod col :3
+also im a fnf fan, so expect MOSTLY fnf stuff.
 
-![Fnfbbbeta](https://user-images.githubusercontent.com/78597960/156788421-0ed6eb4d-adb0-467b-85a5-7187fc3620de.png)
+![har har harr har hr arh arh arh har har](https://user-images.githubusercontent.com/78597960/157259872-4c8ad5e5-e682-4577-88fc-064ba688430a.png)
+
 
 
 
