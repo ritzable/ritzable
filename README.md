@@ -5,7 +5,7 @@ i make and code stuff here. also im a transgender idiot so she/her lmao :]
 also ALSO im a fnf fan, so expect MOSTLY fnf stuff.
 also also also fnf but bad fan very cool mod cried like at the climax lololol im crying help
 
-![Screenshot 2022-03-10 11 07 38 AM](https://user-images.githubusercontent.com/78597960/157707527-09fb1a64-12a3-431d-bfa5-79950e60bde0.png)
+![your er BA DXDDDX](https://user-images.githubusercontent.com/78597960/157707845-50514ba5-0953-4d3f-8161-149801ca5d9a.png)
 
 
 
