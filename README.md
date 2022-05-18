@@ -1,14 +1,6 @@
-# hi, im risible.
 
-i make and code stuff here. also im a transgender idiot so she/her lmao :]
-
-also ALSO im a fnf fan, so expect MOSTLY fnf stuff.
-also also also fnf but bad fan very cool mod cried like at the climax lololol im crying help
-
-![your er BA DXDDDX](https://user-images.githubusercontent.com/78597960/157707845-50514ba5-0953-4d3f-8161-149801ca5d9a.png)
-
-
-
+satn 
+![FTAQbPUWYAERClt](https://user-images.githubusercontent.com/78597960/168940587-b07e66c7-8204-49c8-a565-c066ab011dbc.jpeg)
 
 
 
